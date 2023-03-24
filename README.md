@@ -1,0 +1,4 @@
+# Friday-Lab
+SUCCESS
+
+LIFE IS GOOD
